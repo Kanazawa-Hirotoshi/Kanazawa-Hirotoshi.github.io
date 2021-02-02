@@ -1,0 +1,1 @@
+# Kanazawa-Hirotoshi.github.io
